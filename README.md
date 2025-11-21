@@ -33,8 +33,8 @@ Passionate **Web Developer** with experience in creating dynamic and responsive 
 ## 📫 Contact Me
 
 - GitHub: [ManojKale1244](https://github.com/ManojKale1244)  
-- Email: manojkale@example.com  
-- LinkedIn: [Manoj Kale](https://www.linkedin.com/in/manojkale)  
+- Email: manojkale187@gmail.com 
+
 
 ---
 
